@@ -1,3 +1,7 @@
 # MS-365-MBI
 
 https://mufasyah-my.sharepoint.com/:f:/g/personal/fakhrul_syahmi_mufasyah_onmicrosoft_com/Eh_j_FZ_yGxJuPhdiPKkEMMBRCXVvGNg5IYp9ZSVEkPnbA?e=QYFy9l
+
+#MBI 6 Nov
+
+https://mufasyah-my.sharepoint.com/:w:/g/personal/fakhrul_syahmi_mufasyah_onmicrosoft_com/EWpxOKpSMxVJvAeqQy0hMXoB_aCkKKjkV-UEreFV-ABVXg?e=co2UnL
